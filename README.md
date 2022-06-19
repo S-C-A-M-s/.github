@@ -1,0 +1,4 @@
+
+# Slamin & Jamin
+
+## While Scamin
